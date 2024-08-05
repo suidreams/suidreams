@@ -1,7 +1,8 @@
-![tumblr_120c28abc83675e5e9157f4df207f3f0_bd4fe814_1280](https://github.com/user-attachments/assets/1c2cc091-003c-40d5-8961-b9cf5aa837d8)
+![tumblr_120c28abc83675e5e9157f4df207f3f0_bd4fe814_1280](https://github.com/user-attachments/assets/b0868dcc-905a-4839-815d-2fe8e917f230)
+
 ‎" "I will bring the best sword 	cross the highest mountain,"
 
-‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ 	‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎   ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎Hii im suibian or better yet known as yuu to most people im not always active on ponytown due to being busy in real life. i have a actual life. i am usaully tired and will rant freely about stuff. i am suffering with serve social anxiety and depression , so i am very sorry if i dont get to talk to you! im open to chat but i wont reply as much! matching skins/matching names is okay aslong as you ask. for me to match ships w you, you woud have to be near or (1-2 yrs) older then me too i dont match ships w anyone younger then me. my birthday is on sep 11!! im turning 16!! yipppe. I am ftm and have been out of the closet for 4 years i am bisexual with the more attration to guys. i only use he/him and never will use she/her, they/them/ it/its etc use they/them for me IF you dont know my prns if you know it DO NOT. please and i say please dont drag me into drama im not your savior to help you with that.
+‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ 	‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎   ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎Hii im suibian or better yet known as yuu to most people im not always active on ponytown due to being busy in real life. i have a actual life. i am usaully tired and will rant freely about stuff. i am suffering with serve social anxiety and depression , so i am very sorry if i dont get to talk to you! im open to chat but i wont reply as much! matching skins/matching names is okay aslong as you ask. for me to match ships w you, you woud have to be near or (1-2 yrs) older then me too i dont match ships w anyone younger then me. my birthday is on sep 11!! im turning 16!! yipppe. I am ftm and have been out of the closet for 4 years i am bisexual with the more attration to guys. i only use he/him and never will use she/her, they/them/ it/its etc use they/them for me IF you dont know my prns if you know it DO NOT. please and i say please dont drag me into drama im not your savior to help you with that. I TAKE WWX SKINS GIVE ME AT sui.dreams ON DISCORD!!
 
 ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎![d8ecb89d](https://github.com/user-attachments/assets/1ea809b8-9e63-4864-b771-c4897bffc311)
 
@@ -19,4 +20,5 @@
 
 
  ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ 	‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎   ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎   ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎"	go through the deepest forest,	and bring the princess back to you "
-![tumblr_c4cd639df76d0b330638ddaefc9a687a_390626e6_2048](https://github.com/user-attachments/assets/8aa0c619-3815-4512-b7a1-8b7119293792)
+![tumblr_c4cd639df76d0b330638ddaefc9a687a_390626e6_2048](https://github.com/user-attachments/assets/2393fa18-2644-4e62-92e1-d3f32e44ffd8)
+
