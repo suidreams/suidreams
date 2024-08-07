@@ -18,9 +18,10 @@
 
 ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ 	‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎   ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎woah my friends!1 ; 
 
-yari !! prob will add more soon :3
+yari !! prob will add more soon :3 WHOAA PARTY MEMEBERS!!!!!!!!!!!!!
 
-![Screenshot 2024-08-06 6 31 05 PM](https://github.com/user-attachments/assets/c6c54c18-ac03-42a8-b204-3ab273942fed)
+![Screenshot 2024-08-06 6 31 05 PM](https://github.com/user-attachments/assets/c6c54c18-ac03-42a8-b204-3ab273942fed) ![Screenshot 2024-08-06 7 07 58 PM](https://github.com/user-attachments/assets/74343fde-1795-4fcb-81af-6ae74f877689)
+
 
 
 
